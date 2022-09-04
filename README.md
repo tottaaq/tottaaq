@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tottaaq
+- 👋 Hi, I’m @tottaaq, my name is Carlotta Quinziato
 - 👀 I’m interested in cinema, and fashion and all form of arts. 
 - 🌱 I’m currently learning about Ethical International Marketing writing my thesis, I'll disserte in a month. 
 - 💞️ I’m looking to collaborate on companies which allows me to combine my main passions for art and cinema, my aptitude towards aesthetics and my studies in Management, my organizational skills and setting the strategy for the organization.
